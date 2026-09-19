@@ -1,0 +1,6 @@
+# Barwon Asbestos Co — robots.txt
+User-agent: *
+Allow: /
+
+# Sitemap location
+Sitemap: https://barwonasbestos.com/sitemap-index.xml

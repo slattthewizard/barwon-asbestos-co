@@ -1,6 +1,6 @@
 ---
 meta_title: "Asbestos Disposal in the Barwon Region: Where It Can Go"
-meta_description: "One landfill in the whole Barwon region is licensed for asbestos disposal. Where it can legally go, how to wrap it, what it costs. Call now on 0480 XXX XXX."
+meta_description: "One landfill in the whole Barwon region is licensed for asbestos disposal. Where it can legally go, how to wrap it, what it costs. Call now on (03) 5550 4817."
 primary_keyword: "asbestos disposal"
 secondary_keywords: "asbestos disposal Geelong, asbestos tip Geelong, where to dispose of asbestos Victoria, asbestos waste disposal Barwon, asbestos skip bin Geelong"
 ---
@@ -21,7 +21,7 @@ Drysdale takes small domestic quantities, capped at a 6x4 trailer load. Golden P
 
 We haven't printed a street address here on purpose. EPA's register and two councils' own pages give different roads, and until someone confirms which gate you actually drive into, the phone number is the part you can rely on. Ring it, confirm the entrance, and ask what time they can take the load.
 
-If you're not certain the material is asbestos in the first place, get it tested before you touch it. It's the cheapest honest step in the whole business. Call now on [0480 XXX XXX](tel:+6148000000), or send a photo through the [contact form](/#contact) and we will point you to [asbestos testing in Geelong](/asbestos-testing-geelong/) or put you in touch with a licensed removalist for a quote.
+If you're not certain the material is asbestos in the first place, get it tested before you touch it. It's the cheapest honest step in the whole business. Call now on [(03) 5550 4817](tel:+61355504817), or send a photo through the [contact form](/#contact) and we will point you to [asbestos testing in Geelong](/asbestos-testing-geelong/) or put you in touch with a licensed removalist for a quote.
 
 ## Why your local transfer station will turn you away
 
@@ -65,7 +65,7 @@ Read those with two caveats attached. Every Victorian figure here is a Melbourne
 
 The minimum job charge is the number that catches people out. Removal work in Victoria carries a minimum call-out of roughly $800 to $1,500, which is why a four sheet repair never works out at four times the per sheet rate. More on that in our guide to [asbestos removal cost in Geelong](/blog/asbestos-removal-cost-geelong/) and on the [cost page](/asbestos-removal-cost/).
 
-If the sums are starting to look like a job rather than a trailer trip, get a quote from a licensed removalist before you commit either way. Call now on [0480 XXX XXX](tel:+6148000000) and we will put you in touch with one.
+If the sums are starting to look like a job rather than a trailer trip, get a quote from a licensed removalist before you commit either way. Call now on [(03) 5550 4817](tel:+61355504817) and we will put you in touch with one.
 
 ## Asbestos bins are not skip bins
 
@@ -91,7 +91,7 @@ Or take a shed at the back of a property a new owner has just bought near Colac.
 
 There is one bit of good news in the paperwork. Where a homeowner has engaged a licensed removalist at a domestic property, the duty to obtain the clearance certificate sits with the licence holder, not with you. And a clearance certificate is not required at all where the work was only non-friable material not exceeding 10 square metres in total.
 
-Want a price on the material rather than a plan for the tip? Call now on [0480 XXX XXX](tel:+6148000000), or [send us a photo](/#contact) and we will put you in touch with a licensed removalist. Their WorkSafe Victoria licence number appears on every quote, and you contract with them directly.
+Want a price on the material rather than a plan for the tip? Call now on [(03) 5550 4817](tel:+61355504817), or [send us a photo](/#contact) and we will put you in touch with a licensed removalist. Their WorkSafe Victoria licence number appears on every quote, and you contract with them directly.
 
 ## Frequently Asked Questions
 

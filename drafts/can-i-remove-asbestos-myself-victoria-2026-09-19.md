@@ -23,7 +23,7 @@ Here is the accurate version. The 10 square metre and one hour figures are the l
 
 Asbestos Victoria's homeowner removal page puts the practical view plainly: removal work is best performed by licensed removalists, who are trained to do it safely.
 
-None of that tells you whether the sheet in your hands is asbestos in the first place, and you cannot tell by eye. Ring us on [0480 XXX XXX](tel:+6148000000) or send a photo through the [contact form](/#contact), and we can take a sample and have it analysed by a NATA-accredited laboratory before you go any further. Testing is the cheap step. Everything else on this page costs more.
+None of that tells you whether the sheet in your hands is asbestos in the first place, and you cannot tell by eye. Ring us on [(03) 5550 4817](tel:+61355504817) or send a photo through the [contact form](/#contact), and we can take a sample and have it analysed by a NATA-accredited laboratory before you go any further. Testing is the cheap step. Everything else on this page costs more.
 
 ## What the 10 square metre rule actually says
 
@@ -70,7 +70,7 @@ Eaves on a 1970s brick veneer in Belmont, found mid kitchen renovation. Here the
 
 If you rent the place out, the same logic applies with more force. A rental property is a workplace for anyone who works there, and a tenant is not a homeowner doing their own place.
 
-Call [0480 XXX XXX](tel:+6148000000) with the address and a description of what you are looking at, or send photos through the [contact form](/#contact), and we will put you in touch with a licensed removalist for a written quote. Their WorkSafe Victoria licence number appears on it. You contract with them directly.
+Call [(03) 5550 4817](tel:+61355504817) with the address and a description of what you are looking at, or send photos through the [contact form](/#contact), and we will put you in touch with a licensed removalist for a written quote. Their WorkSafe Victoria licence number appears on it. You contract with them directly.
 
 ## What DIY asbestos removal actually saves, once you add it up
 

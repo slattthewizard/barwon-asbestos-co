@@ -33,7 +33,7 @@ The Victorian Government's position is that homes built in Australia until 1990 
 
 The regional history explains the housing stock. The Housing Commission's Norlane program peaked between 1951 and 1957 and had delivered 2,464 houses by 1976, and Corio gained five estates of roughly 2,500 houses from the late 1950s onward. Ford, the Shell refinery from 1956 and Alcoa at Point Henry from 1963 were the employers who filled them. All of it went up while asbestos cement was the normal material, and none of it tells you about your particular sheet.
 
-If you are standing in front of something you are unsure about, the useful move is to leave it alone and [call now](tel:+6148000000) to book a test. You can also [send us a photo through the contact form](/#contact) and we will tell you what a sample would involve.
+If you are standing in front of something you are unsure about, the useful move is to leave it alone and [call now](tel:+61355504817) to book a test. You can also [send us a photo through the contact form](/#contact) and we will tell you what a sample would involve.
 
 ## How the sample is taken, and where it usually goes wrong
 
@@ -99,7 +99,7 @@ One piece of good news for homeowners. Above 10 square metres a clearance certif
 
 Disposal is the other thing a positive result sets in motion. Exactly one facility in the Barwon region is on EPA Victoria's register of landfills licensed to accept asbestos waste, Drysdale Landfill, on (03) 5251 2935, and it takes small domestic quantities only up to a 6x4 trailer. Every Surf Coast Shire transfer station refuses asbestos outright, so a Torquay or Anglesea load has one legal destination and it is on the Bellarine. Call the landfill before you drive anywhere, and see our [asbestos disposal page](/asbestos-disposal-geelong/) for the wrapping and labelling rules.
 
-If a result has come back positive, [call now](tel:+6148000000) and we will put you in touch with licensed asbestos removalists who quote the work themselves. You deal with them directly, and the quote comes from them.
+If a result has come back positive, [call now](tel:+61355504817) and we will put you in touch with licensed asbestos removalists who quote the work themselves. You deal with them directly, and the quote comes from them.
 
 Two sources worth reading in full before you touch anything: WorkSafe Victoria's [compliance code for removing asbestos in workplaces](https://www.worksafe.vic.gov.au/resources/compliance-code-removing-asbestos-workplaces), and Asbestos Victoria's [homeowner removal guidance](https://www.asbestos.vic.gov.au/in-the-home/find-manage-remove-dispose/homeowner-removal).
 

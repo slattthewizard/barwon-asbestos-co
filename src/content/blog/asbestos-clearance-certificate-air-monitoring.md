@@ -37,7 +37,7 @@ Where the removal happens at domestic premises used solely for domestic purposes
 
 So for a Geelong homeowner getting a fence, a roof or a set of eaves done, the removalist carries the clearance duty. Your job is to make sure it happens and to keep the certificate.
 
-If you are at the earlier stage and still do not know whether the material is asbestos at all, start there instead. [Call now](tel:+6148000000) and we will put you in touch with a licensed removalist for a quote, or [send us a photo and a short description](/#contact) of what you are looking at. Testing first is the cheapest and calmest order to do this in, and our [asbestos testing page](/asbestos-testing-geelong/) explains how sampling works.
+If you are at the earlier stage and still do not know whether the material is asbestos at all, start there instead. [Call now](tel:+61355504817) and we will put you in touch with a licensed removalist for a quote, or [send us a photo and a short description](/#contact) of what you are looking at. Testing first is the cheapest and calmest order to do this in, and our [asbestos testing page](/asbestos-testing-geelong/) explains how sampling works.
 
 ## When a clearance certificate is required in Victoria, and when it is not
 
@@ -79,7 +79,7 @@ That number has teeth. Where levels come back at or above 0.01 f/ml, a clearance
 
 Which class your job falls into is decided on site by the removalist, not over the phone, because it depends on the condition of the material rather than its age. A sheet that is sound and painted and a sheet that crumbles in your fingers are different problems. [Friable vs non friable asbestos](/blog/friable-vs-non-friable-asbestos/) walks through how that call gets made.
 
-If something at your place is already broken, cracked or water damaged, do not sweep it up and do not hose it. [Call now](tel:+6148000000) and get a quote from a licensed removalist instead.
+If something at your place is already broken, cracked or water damaged, do not sweep it up and do not hose it. [Call now](tel:+61355504817) and get a quote from a licensed removalist instead.
 
 ## What clearance costs, and why it sits on the quote as its own line
 

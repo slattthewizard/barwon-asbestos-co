@@ -33,7 +33,7 @@ Local history is why it turns up here so often. The Housing Commission's Norlane
 
 You cannot identify it by eye, and neither can a builder or a roof plumber. A sample analysed at a NATA accredited laboratory costs $88 to $160, with results in one to five business days and a surcharge of 25 to 50 per cent for 24 to 48 hour turnaround. Most houses need three to eight samples, because every different material is tested separately: a roof sheet, an eaves lining and a shed wall are three samples, not one.
 
-Get it tested before you touch it. [Call now](tel:+6148000000) or [send us a photo](/#contact) and we will put you in touch with a licensed removalist for a quote. There is more in our guide to [how asbestos testing works in Victoria](/blog/asbestos-testing-how-it-works-victoria/) and on the [asbestos testing](/asbestos-testing-geelong/) page.
+Get it tested before you touch it. [Call now](tel:+61355504817) or [send us a photo](/#contact) and we will put you in touch with a licensed removalist for a quote. There is more in our guide to [how asbestos testing works in Victoria](/blog/asbestos-testing-how-it-works-victoria/) and on the [asbestos testing](/asbestos-testing-geelong/) page.
 
 ## Five things that turn a sound roof into a contaminated site
 
@@ -75,7 +75,7 @@ A whole house roof on a 1960s place in Norlane or Belmont is the $4,000 to $15,0
 
 A shed at the back of a Colac property that the new owner wants gone sits in the $1,300 to $3,000 band, but out there the harder problem is disposal rather than price. Our [asbestos removal cost guide](/blog/asbestos-removal-cost-geelong/) works through the rest of the numbers.
 
-Send a photo of the roof and the eaves and we will put you in touch with removalists who quote in your area. [Call now](tel:+6148000000) or use the [enquiry form](/#contact).
+Send a photo of the roof and the eaves and we will put you in touch with removalists who quote in your area. [Call now](tel:+61355504817) or use the [enquiry form](/#contact).
 
 ## Encapsulation, removal, and who puts the new roof on
 
@@ -109,7 +109,7 @@ That matters most outside Greater Geelong. Surf Coast Shire states plainly that 
 
 On a licensed job none of this is your problem, because the removalist takes the waste and the disposal sits inside the quote. It only matters if you handle something small yourself, and then read [EPA Victoria's disposal guidance](https://www.epa.vic.gov.au/dispose-asbestos-waste) before you load a trailer. Our [asbestos disposal](/asbestos-disposal-geelong/) page and the piece on [where asbestos can legally go in the Barwon region](/blog/asbestos-disposal-barwon-region/) cover the packaging and labelling rules.
 
-If broken sheets are already sitting in your yard, do not move them twice. [Call now](tel:+6148000000) and we will put you in touch with a licensed removalist who can quote the clean up and the disposal together.
+If broken sheets are already sitting in your yard, do not move them twice. [Call now](tel:+61355504817) and we will put you in touch with a licensed removalist who can quote the clean up and the disposal together.
 
 ## Frequently Asked Questions
 

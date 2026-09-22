@@ -21,7 +21,7 @@ The Victorian Government puts the scale of it plainly. Homes built in Australia 
 
 What is specific to this region is the timing. Geelong's northern suburbs were built in bulk inside exactly that window. Ford was the city's biggest employer with over 5,000 workers by 1953, and the Housing Commission's Norlane program peaked between 1951 and 1957, reaching 2,464 houses by 1976. Corio gained five Commission estates of about 2,500 houses from the late 1950s over roughly twenty years, filled by workers from Ford, International Harvester, the Shell refinery that opened in 1956 and later Alcoa at Point Henry from 1963.
 
-None of that means every house on those estates contains asbestos. It means the odds are high enough to test before you start a job. If you've already opened something up and you're not sure what you're looking at, [call now](tel:+6148000000) before you go further. We can get a sample analysed by a NATA accredited laboratory, and if it comes back positive we will put you in touch with a licensed removalist.
+None of that means every house on those estates contains asbestos. It means the odds are high enough to test before you start a job. If you've already opened something up and you're not sure what you're looking at, [call now](tel:+61355504817) before you go further. We can get a sample analysed by a NATA accredited laboratory, and if it comes back positive we will put you in touch with a licensed removalist.
 
 ## Asbestos vinyl tiles and the black glue under them
 
@@ -74,7 +74,7 @@ Most houses need three to eight samples, and larger properties eight to twelve. 
 
 If you want the whole property looked at rather than one suspect material, an on site inspection with sampling runs $395 to $900 on Melbourne metro rates. That's the right call before a full renovation, and overkill if you only want to know about one floor. Our [asbestos testing page](/asbestos-testing-geelong/) explains what a sampling visit involves, and [how testing works in Victoria](/blog/asbestos-testing-how-it-works-victoria/) covers the laboratory side.
 
-Removal pricing depends on access, height, the condition of the material and how much there is, which is why nobody can quote a roof over the phone from a description. Our [asbestos removal cost guide](/asbestos-removal-cost/) sets out the ranges in one place. Book a test before you touch it: [call now](tel:+6148000000), or send a photo through the [contact form](/#contact) and we will tell you what is worth sampling.
+Removal pricing depends on access, height, the condition of the material and how much there is, which is why nobody can quote a roof over the phone from a description. Our [asbestos removal cost guide](/asbestos-removal-cost/) sets out the ranges in one place. Book a test before you touch it: [call now](tel:+61355504817), or send a photo through the [contact form](/#contact) and we will tell you what is worth sampling.
 
 ## What you may do yourself, and where it can legally go
 
@@ -92,7 +92,7 @@ Every Surf Coast Shire transfer station refuses asbestos outright, including Ang
 
 Whatever goes in the trailer has to be wrapped in polythene around 200 microns thick, sealed with tape and marked with the asbestos warning label. It can never go in a general skip or a council hard waste collection, and our [disposal guide for the Barwon region](/blog/asbestos-disposal-barwon-region/) has the rest.
 
-Not sure which of these applies to your place? [Call now](tel:+6148000000) and describe what you are looking at, or send photos through the [contact form](/#contact). Removal itself is carried out by licensed asbestos removalists we work with, and their WorkSafe Victoria licence number appears on every quote.
+Not sure which of these applies to your place? [Call now](tel:+61355504817) and describe what you are looking at, or send photos through the [contact form](/#contact). Removal itself is carried out by licensed asbestos removalists we work with, and their WorkSafe Victoria licence number appears on every quote.
 
 ## Frequently Asked Questions
 

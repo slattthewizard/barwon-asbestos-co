@@ -35,7 +35,7 @@ Here is the part most asbestos content gets wrong. The category is not fixed for
 
 None of that makes intact sheeting an emergency. Sound bonded material that nobody is cutting, drilling or walking on is usually the least urgent thing on the property.
 
-If you cannot tell what you are looking at, that is the normal position, not an embarrassing one. [Call now](tel:+6148000000), or [send us a photo](/#contact) and we will explain how sampling works and put you in touch with a licensed removalist if the result is positive. Get it tested before you touch it: a lab result is the only thing that settles the question.
+If you cannot tell what you are looking at, that is the normal position, not an embarrassing one. [Call now](tel:+61355504817), or [send us a photo](/#contact) and we will explain how sampling works and put you in touch with a licensed removalist if the result is positive. Get it tested before you touch it: a lab result is the only thing that settles the question.
 
 ## Where the line falls in a Geelong house
 
@@ -114,7 +114,7 @@ Larger jobs follow the material. A typical house roof runs $4,000 to $15,000, a 
 
 Two lines are more likely on a Class A quote. A visual clearance certificate is around $165 to $250, and air monitoring, where required, runs $250 to $600 per day, both explained in our guide to [clearance certificates and air monitoring](/blog/asbestos-clearance-certificate-air-monitoring/). Prices are indicative and GST treatment varies between providers, so ask each removalist whether their quote includes GST.
 
-If you are somewhere between "I think that is fibro" and "I think that is crumbling", the order is the same. Get the material identified, then get a quote from a licensed removalist for whatever the report says it is. [Call now](tel:+6148000000) or [send us the details](/#contact).
+If you are somewhere between "I think that is fibro" and "I think that is crumbling", the order is the same. Get the material identified, then get a quote from a licensed removalist for whatever the report says it is. [Call now](tel:+61355504817) or [send us the details](/#contact).
 
 ## Frequently Asked Questions
 

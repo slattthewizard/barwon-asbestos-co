@@ -21,7 +21,7 @@ Geelong asks this question more often than most of the state, and the reason is 
 
 Ford was Geelong's biggest employer with more than 5,000 workers by 1953, and the Shell refinery in 1956 and Alcoa's Point Henry smelter in 1963 filled the suburbs around them. Those houses went up in the decades asbestos cement was standard, and their back fences went up with them.
 
-If you are not sure what you are looking at, do not sand it, drill it, pressure wash it or snap a piece off for a closer look. Call now on [0480 XXX XXX](tel:+6148000000) and talk it through, or send a photo through the [contact form](/#contact) and we will tell you whether it is worth testing. Sampling is cheap enough to do before you know anything.
+If you are not sure what you are looking at, do not sand it, drill it, pressure wash it or snap a piece off for a closer look. Call now on [(03) 5550 4817](tel:+61355504817) and talk it through, or send a photo through the [contact form](/#contact) and we will tell you whether it is worth testing. Sampling is cheap enough to do before you know anything.
 
 ## What testing costs, and how many samples you actually need
 
@@ -79,7 +79,7 @@ Be careful with per linear metre pricing. There is no reliable Victorian per met
 
 If a quote is priced per linear metre, ask how that rate was worked out and what it assumes about sheet height. Per sheet or per whole fence is the defensible way to do it. More is in our [asbestos removal cost guide](/asbestos-removal-cost/) and [asbestos removal costs in Geelong](/blog/asbestos-removal-cost-geelong/).
 
-Prices are indicative and GST treatment varies between providers, so ask each removalist whether their quote includes GST. Before you compare any two quotes, get the material tested. Then call now on [0480 XXX XXX](tel:+6148000000) and we will put you in touch with a licensed removalist who can price the job properly.
+Prices are indicative and GST treatment varies between providers, so ask each removalist whether their quote includes GST. Before you compare any two quotes, get the material tested. Then call now on [(03) 5550 4817](tel:+61355504817) and we will put you in touch with a licensed removalist who can price the job properly.
 
 ## Where the sheets are allowed to go
 
@@ -91,7 +91,7 @@ Every Surf Coast Shire transfer station refuses asbestos outright, which covers 
 
 For context, other Victorian councils, not Geelong, publish asbestos gate fees between $100 and $376 per tonne. That is nearly a fourfold spread across three shires, which is why a single Victorian disposal figure would mislead. Our [asbestos disposal page](/asbestos-disposal-geelong/) and [asbestos disposal in the Barwon region](/blog/asbestos-disposal-barwon-region/) set out the wrapping and transport rules.
 
-If your fence is already broken and sitting in the yard, that is common and fixable. Call now on [0480 XXX XXX](tel:+6148000000), or send photos through the [contact form](/#contact), and we will put you in touch with a licensed removalist for a quote.
+If your fence is already broken and sitting in the yard, that is common and fixable. Call now on [(03) 5550 4817](tel:+61355504817), or send photos through the [contact form](/#contact), and we will put you in touch with a licensed removalist for a quote.
 
 ## Frequently Asked Questions
 

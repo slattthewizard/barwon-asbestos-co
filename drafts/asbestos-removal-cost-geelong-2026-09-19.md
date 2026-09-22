@@ -23,7 +23,7 @@ None of that gets cheaper because your pile is small. Which is why a per sheet r
 
 If you are weighing up a repair against doing the whole run, this is the number that decides it. Two sheets and twenty sheets are much closer in price than most people expect.
 
-[Call now](tel:+6148000000) and we will put you in touch with a licensed removalist for a quote, or [send a photo through the contact form](/#contact) if you are not sure what you are looking at yet.
+[Call now](tel:+61355504817) and we will put you in touch with a licensed removalist for a quote, or [send a photo through the contact form](/#contact) if you are not sure what you are looking at yet.
 
 ## Asbestos testing cost comes first, and it is the cheap part
 
@@ -37,7 +37,7 @@ If you would rather someone else took the samples, an on-site inspection with sa
 
 Testing is also the cleanest first step legally, and the cheapest way to stop worrying. Our [asbestos testing page](/asbestos-testing-geelong/) covers what a lab report actually tells you and what to do with a positive result.
 
-Get it tested before you touch it. [Call now](tel:+6148000000) to book a test, and if it comes back positive you can go straight to getting a quote from a licensed removalist.
+Get it tested before you touch it. [Call now](tel:+61355504817) to book a test, and if it comes back positive you can go straight to getting a quote from a licensed removalist.
 
 ## What asbestos removal costs by job type in the Barwon region
 
@@ -106,7 +106,7 @@ The clearance certificate is usually its own line. Above 10 square metres of Cla
 
 Removal is carried out by licensed asbestos removalists we work with, and their WorkSafe Victoria licence number appears on every quote. You contract with them directly.
 
-[Call now](tel:+6148000000) for a quote from a licensed removalist, or [send the details and a photo through the contact form](/#contact) and we will put you in touch with one.
+[Call now](tel:+61355504817) for a quote from a licensed removalist, or [send the details and a photo through the contact form](/#contact) and we will put you in touch with one.
 
 ## Frequently Asked Questions
 

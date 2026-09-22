@@ -41,7 +41,7 @@ The fragments are usually flat, grey and cement hard. They snap rather than crum
 
 None of that is identification. Plenty of ordinary modern fibre cement looks identical in the ground. Under Victoria's OHS Regulations only a laboratory approved to identify asbestos in samples can give you an answer, which in practice means a NATA accredited lab.
 
-If you are standing at the edge of a trench looking at something suspicious, the useful next move is a phone call rather than another dig. [Call us](tel:+6148000000) or [send a photo through the contact form](/#contact), and we can get a sample tested before anyone touches it again, or put you in touch with a licensed asbestos removalist.
+If you are standing at the edge of a trench looking at something suspicious, the useful next move is a phone call rather than another dig. [Call us](tel:+61355504817) or [send a photo through the contact form](/#contact), and we can get a sample tested before anyone touches it again, or put you in touch with a licensed asbestos removalist.
 
 Condition matters more than quantity. A hard bonded fragment sitting in clay behaves very differently from a weathered piece that powders between your fingers. Crumbling material and asbestos contaminated dust are Class A work in Victoria with no exemption at any quantity. Our guide to [friable versus non friable asbestos](/blog/friable-vs-non-friable-asbestos/) covers where that line sits.
 
@@ -69,7 +69,7 @@ We have not found a published Victorian rate card for soil analysis, so this sit
 
 A result gives you a decision. Negative means you finish the fence. Positive means a licensed removalist has something concrete to quote from instead of a guess.
 
-[Call us](tel:+6148000000) to book a test before you touch it, or read how the process runs end to end on our [asbestos testing in Geelong](/asbestos-testing-geelong/) page.
+[Call us](tel:+61355504817) to book a test before you touch it, or read how the process runs end to end on our [asbestos testing in Geelong](/asbestos-testing-geelong/) page.
 
 ## What the law actually says about digging it up yourself
 
@@ -115,7 +115,7 @@ Say the new owner of a Colac property wants a shed slab poured over a wheel trac
 
 Volume matters legally too. A householder taking a small, properly wrapped domestic load to an authorised landfill is one thing. Truckloads of contaminated soil are commercial movements needing an EPA transport permission and tracking, which is a contractor's job. Anything that travels must be wrapped in polythene sheeting about 200 micron thick, sealed, and marked with the asbestos warning label. Our [asbestos disposal in Geelong](/asbestos-disposal-geelong/) page covers the packaging rules, and our guide to [asbestos disposal across the Barwon region](/blog/asbestos-disposal-barwon-region/) has the regional breakdown.
 
-If you are not sure what you have found even qualifies, start with the test. [Call us](tel:+6148000000) and we will talk through it, get a sample analysed, and put you in touch with a licensed removalist if the result calls for one. Their WorkSafe Victoria licence number appears on every quote, and you contract with them directly.
+If you are not sure what you have found even qualifies, start with the test. [Call us](tel:+61355504817) and we will talk through it, get a sample analysed, and put you in touch with a licensed removalist if the result calls for one. Their WorkSafe Victoria licence number appears on every quote, and you contract with them directly.
 
 ## Frequently Asked Questions
 
